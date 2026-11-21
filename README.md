@@ -5,3 +5,4 @@
 ### like: give r.sunc.su/xxxxxxxx link and ur ai will look to the result.
 #- made by credosdev 🖤
 disclaimer: please do not dmca it, i will take it down if you ask it nicely without sending dmca reports, thanks.
+runable orginial sunc: https://sunc.io/
